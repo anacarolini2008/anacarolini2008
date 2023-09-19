@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--
 
 ola meu nome e ana carolini 
 tenho 15 anos 
